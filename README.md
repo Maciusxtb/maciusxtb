@@ -1,5 +1,5 @@
 # 💫 About Me:
-Working on FiveM scripts and systems | Open to RP/FiveM collaborations | Learning IT & programming | Ask me about FiveM, IT, or crypto | Fun fact: I track crypto prices
+Working on FiveM scripts and systems | Open to RP/FiveM collaborations | Learning IT & programming 
 
 
 ## 🌐 Socials:
